@@ -41,7 +41,7 @@ Coming soon! 🚀
 ## 📫 Connect With Me
 
 - GitHub: @Famitha18
-- LinkedIn: Coming soon
+- LinkedIn: Famitha A 
 
 ---
 
